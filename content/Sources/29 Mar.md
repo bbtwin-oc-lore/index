@@ -1,0 +1,3 @@
+tts asked what [[Owo]] being metaphysical meant:  
+[[Frox]] is metaphysical as in he can shapeshift and he can create anything from nothing, while [[stags]] is an alchemist he has to have something already to make things, so like he has to have a rock then he can turn it into other rock-like objects.  
+[[Oro]] was made when [[Stags]] went to a place, like a barren wasteland, while [[Frox]] went to a white void and used his metaphysical abilities to create [[owo]] out of nothing, so the question is how real is the stuff is if its from nothing. Originally in Bongo's OC canon Heaven, Hell, and the [[Ringworld]] were all in the same place

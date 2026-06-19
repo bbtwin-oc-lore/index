@@ -1,0 +1,3 @@
+Once Froks made everything he wanted he went out and started creating aliens etc until he got to the end of the universe where he found a giant eyeball which was the only thing that he didn't create. So he asked the eye "Are you god?" and the eye said "No, you're god" because the eye is actually Bongo looking into the world. One thing Froks made was an area for him to watch TV which had 4 doors, and the blue door where he could watch [inaudile] which is why he knows about Family Guy.  
+  
+With Skags, it's not necessarily Bingo, it's not a big ear but it's a big hole which also wasn't created, but it had whispers coming out of it that only Stags could speak with.

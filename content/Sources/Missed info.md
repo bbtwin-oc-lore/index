@@ -1,0 +1,3 @@
+Twins were in confessional in the last week or so doing drawing requests, where Bongo explained the 4 portals/4 apocalypses her universe was going to go through over her lifetime, saying the first one destroyed the Screatures, and I think she said Nurosville will exist in portals 2 and 3.
+
+I swear to god I took notes on it, but Frox' door room with the interdimensional cable room that explains why he can reference cartoon network shows.

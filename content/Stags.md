@@ -1,0 +1,1 @@
+Stags is one of the two main gods in Twins' lore, created by Bingo. Stags shaped the world of Oro and created all its demigods. He has the power to perform magic and transmute objects.

@@ -1,0 +1,1 @@
+Term used by [[Bingo]] on March 29th as a place along with [[Heaven]] and [[Heaven and Hell]]. If I had to guess, this refers to the infinity shape that [[Oro]] and [[Owo]] make.
