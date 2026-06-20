@@ -1,0 +1,1 @@
+Vanguard Weisenheimer Jr is the main character of [[Damnation Corporation]] and the CEO of the titular corporation. He is an incompetent and insecure boss, similar to Michael Scott.

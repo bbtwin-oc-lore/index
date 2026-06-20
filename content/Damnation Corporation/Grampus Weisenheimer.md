@@ -1,0 +1,1 @@
+Grampus Weisenheimer is the founder of Damnation Corporation and grandfather of Vanguard Weisenheimer Jr, current CEO.
